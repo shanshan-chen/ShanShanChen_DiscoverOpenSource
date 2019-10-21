@@ -8,3 +8,4 @@ Since Delilah sourced most of her user-testers through her network, their backgr
 My response to the prompt is below:”
 
 Delilah should contact organizations that are targeted toward minorities and underrepresented individuals. She can also take to social media to market her inclusive application. 
+Test
